@@ -1,5 +1,5 @@
 
-<img src="[...](https://64.media.tumblr.com/147e9d026f6bd3ba626d24644a9be620/a8235a72bfb6e908-e5/s1280x1920/e499afe80b8383a6f00019aa449b7157b383de50.gifv)" width="48">
+![](https://i.ibb.co/5gqnq4Q9/tumblr-147e9d026f6bd3ba626d24644a9be620-e499afe8-1280.gif)
 
 ![](https://i.ibb.co/9m7Dg5rN/Untitled2664-20250128174931.png)
 
